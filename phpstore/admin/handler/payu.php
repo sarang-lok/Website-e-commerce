@@ -1,0 +1,2 @@
+
+<div> <a style=" width: 135px; background-color: #1CA953; text-align: center; font-weight: 800; padding: 11px 0px; color: white; font-size: 12px; display: inline-block; text-decoration: none; " href='https://pmny.in/9IULwtRBipuK' > Pay Now </a> </div>
